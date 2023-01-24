@@ -18,7 +18,7 @@
 
 
 ### Glad to see you here!  
-proactive young man who is focused on improving his skills and career 💻. Passionate about football ⚽ and gaming 🎮👋  
+proactive young man who is focused on improving his skills and career 💻. Passionate about football ⚽ and gaming 🎮
   
 
 <br/>  
