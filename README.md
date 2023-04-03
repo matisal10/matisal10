@@ -1,6 +1,7 @@
 # 💫 About Me:
 Hi 👋, I am Matías
-proactive young man who is focused on improving his skills and career 💻. Passionate about football ⚽ and gaming 🎮
+proactive young man who is focused on improving his skills and career 💻. Passionate about football ⚽ and gaming 🎮<br>
+
 1.🏆🇦🇷 World champion<br>2. France<br>3. 📚 I’m learning everyday<br><br>
 
 
